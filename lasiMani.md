@@ -1,1 +1,2 @@
 # GitHub funkcionalitāte
+;lsrgksdtklhg diluh
